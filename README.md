@@ -15,8 +15,8 @@ Trabalho realizado em conjunto por:
 
 ### Entrega 2
 
-[Link do vídeo](LINK_DA_ENTREGA_2)
+[PLACEHOLDER](https://www.youtube.com/watch?v=k_tUuBXBjbE)
 
 ### Entrega 3
 
-[Link do vídeo](LINK_DA_ENTREGA_3)
+[PLACEHOLDER](https://www.youtube.com/watch?v=CfOrzdmuny4)

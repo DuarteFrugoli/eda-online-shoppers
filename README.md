@@ -11,7 +11,7 @@ Trabalho realizado em conjunto por:
 
 ### Entrega 1
 
-[Link do vídeo](COLE_O_LINK_AQUI)
+[https://youtu.be/QwzYZC1qEW0](https://youtu.be/QwzYZC1qEW0)
 
 ### Entrega 2
 
